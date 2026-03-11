@@ -1,1 +1,1 @@
-Personal Website of Mr. Saqr Thabet: [https://saqr-thabet.github.io/](https://saqr-thabet.github.io/)
+Personal Website of Mr. Saqr Thabet: [https://saqrthabet.github.io/](https://saqrthabet.github.io/)
